@@ -9,7 +9,7 @@ I read in ///lousy.slope.paid  hacker school  <br>
 I’m currently learning HTML to hak nasa <br>	
 I’m looking to collaborate on More hackers like me <br>	
 How to reach me Just <br>	
-Come here <!-- ///bronzer.etchings.vanished --> <br>	
+Come here <!-- ///reclining.detergent.worker --> <br>	
 hehehe 
 
 </body>
